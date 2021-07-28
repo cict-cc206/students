@@ -1,4 +1,4 @@
-emoji :v: y'all!
+emoji :sunglasses: wassup mga par
 ***
 about_me
 >  Hi I'm Janne, I like to take photos and design UI/UX. My usual hobbies are playing video games and chess. Stay safe and keep on learning!
